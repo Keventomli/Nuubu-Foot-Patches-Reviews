@@ -62,17 +62,4 @@
 <h2>💕💕<strong><a href="https://hotdeal24x7.com/nuubu-foot-patches-buy" target="_blank" rel="nofollow">Visit the official website today and grab your bottle!</a></strong>💕💕</h2>
 <div class="separator"><a href="https://hotdeal24x7.com/nuubu-foot-patches-buy" target="_blank" rel="nofollow"><img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhKzRqTtswyE8vprkiAqRIDhZRs47YVXCt1DwO6B24DF20NKaYAnef-wVnIAWC5tP-Xax2fRuPLnDme_z2-cr-QGfdJfDx4xTDNWBeEC9SF2Yxq4BlC59Ih-sNMZLLrA36iaSqd63_uFPP_EZr6ZSF2_3ZXI455OIUI1qkgj9geF40crnzxsBAwbk2Xqtw/w538-h303/GettyImages-825843122_header-1-1024x575.webp" alt="" width="538" height="303" border="0" data-original-height="575" data-original-width="1024" /></a></div>
 <div class="separator">&nbsp;</div>
-<div class="separator">
-<p><em><strong>F</strong></em><em><strong>acebook Page:-&nbsp;<a href="https://www.facebook.com/events/471089896028773/">https://www.facebook.com/events/471089896028773/</a></strong></em></p>
-<p><em><strong><a href="https://www.facebook.com/groups/614572007755302">https://www.facebook.com/groups/614572007755302</a></strong></em></p>
-<p><span style="font-family: Georgia, serif;"><em><strong>Sale In Live Now:- </strong></em></span></p>
-<p><a href="https://sites.google.com/view/nuubu-foot-patches-reviews-buy/"><span style="font-family: Georgia, serif;"><em><strong>https://sites.google.com/view/nuubu-foot-patches-reviews-buy/</strong></em></span></a></p>
-<p><a href="https://groups.google.com/g/nuubu-foot-patches-reviews/c/ZiffVcjQt3I"><span style="font-family: Georgia, serif;"><em><strong>https://groups.google.com/g/nuubu-foot-patches-reviews/c/ZiffVcjQt3I</strong></em></span></a></p>
-<p><a href="https://medium.com/@keventomli/nuubu-foot-patches-reviews-do-these-patches-eliminate-varicose-veins-ca7efad544fb"><span style="font-family: Georgia, serif;"><em><strong>https://medium.com/@keventomli/nuubu-foot-patches-reviews-do-these-patches-eliminate-varicose-veins-ca7efad544fb</strong></em></span></a></p>
-<p><a href="https://medium.com/@keventomli/nuubu-foot-patches-reviews-worth-the-hype-full-review-inside-f5b1624c22bd"><span style="font-family: Georgia, serif;"><em><strong>https://medium.com/@keventomli/nuubu-foot-patches-reviews-worth-the-hype-full-review-inside-f5b1624c22bd</strong></em></span></a></p>
-<p><a href="https://www.linkedin.com/events/nuubufootpatchesreviews-detoxor7275036690686128128/"><span style="font-family: Georgia, serif;"><em><strong>https://www.linkedin.com/events/nuubufootpatchesreviews-detoxor7275036690686128128/</strong></em></span></a></p>
-<p><a href="https://www.linkedin.com/events/nuubufootpatchesreviews-myperso7275036256047120384/"><span style="font-family: Georgia, serif;"><em><strong>https://www.linkedin.com/events/nuubufootpatchesreviews-myperso7275036256047120384/</strong></em></span></a></p>
-<p><a href="https://nuubu-foot-patches-reviews-sale.mywebselfsite.net/"><span style="font-family: Georgia, serif;"><strong>https://nuubu-foot-patches-reviews-sale.mywebselfsite.net/</strong></span></a></p>
-<p><a href="https://nuubu-foot-patches-reviews-price.mywebselfsite.net/"><span style="font-family: Georgia, serif;"><strong>https://nuubu-foot-patches-reviews-price.mywebselfsite.net/</strong></span></a></p>
-<p><a href="https://nuubu-foot-patches-reviews-price.webflow.io/"><span style="font-family: Georgia, serif;"><strong>https://nuubu-foot-patches-reviews-price.webflow.io/</strong></span></a></p>
-</div>
+<div class="separator">&nbsp;</div>
